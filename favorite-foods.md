@@ -1,4 +1,4 @@
-## List of favorite foods! 
+## List of my favorite foods! 
 
 1. Chicken Tikka Masala
 2. Rice and Beans and Chicken
